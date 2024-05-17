@@ -1,1 +1,0 @@
-# RevolutionizeReality.com
